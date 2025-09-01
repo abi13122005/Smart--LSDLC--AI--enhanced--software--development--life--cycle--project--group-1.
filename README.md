@@ -1,0 +1,1 @@
+# Smart--LSDLC--AI--enhanced--software--development--life--cycle--project--group-1.
